@@ -3,7 +3,7 @@
 
 - 📫 Como contactarme **cayunlautaro0@gmail.com**
 
-- 📄 Mi experiencia [Tengo conociemtenes en programas de edicion,como Sony vegas y FL studio](Tengo conociemtenes en programas de edicion,como Sony vegas y FL studio)
+- 📄 Mi experiencia [Tengo conociemtenes en programas de edicion,como Sony vegas y Photoshop]
 
 - ⚡ Hobby **Hago skateboarding**
 
